@@ -5,5 +5,6 @@ As a Back-End Developer, I'm committed to enhancing user experiences through tho
 - 📫 You can reach me through my Email-durgeshprajapati490@gmail.com
 
 # Tech & Tools Preference
-![image](https://github.com/DPSDURGESH/DurgeshPrajapati/assets/43401302/0ed135f9-3af9-4907-850e-f9df1e3866c9)
+![image](https://github.com/DPSDURGESH/DurgeshPrajapati/assets/43401302/bfd3b193-d1e1-47c7-b7b3-516c5386c018)
+
 
