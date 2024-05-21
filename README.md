@@ -10,7 +10,8 @@ As a Back-End Developer, I'm committed to enhancing user experiences through tho
 ![image](https://github.com/DPSDURGESH/DurgeshPrajapati/assets/43401302/814799c1-9189-4587-856b-352ff2d84978)
 ![image](https://github.com/DPSDURGESH/DurgeshPrajapati/assets/43401302/e6a2dee6-6f8e-4350-9586-24e3b0d87a0b)
 ![image](https://github.com/DPSDURGESH/DurgeshPrajapati/assets/43401302/540de8f3-4c42-4df4-b194-e16de0a229c2)
-![image](https://github.com/DPSDURGESH/DurgeshPrajapati/assets/43401302/459932c9-d8b2-46f9-94c8-b9ccbe8c103e)
+![image](https://github.com/DPSDURGESH/DurgeshPrajapati/assets/43401302/0f0bb64c-1887-4178-9c58-381274f17a8c)
+
 
 
 
